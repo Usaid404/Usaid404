@@ -39,7 +39,7 @@ Currently learning: AWS, Linux, and more DSA.
 
 ## Get in touch
 
-- LinkedIn: [your-linkedin-url](https://www.linkedin.com/in/your-username)
-- Email: your-email@example.com
+- LinkedIn: (https://www.linkedin.com/in/muhammad-usaidullah-40209b33a/)
+- Email: usaid2392@gmail.com
 
 I'm open to internships, so feel free to message me.
